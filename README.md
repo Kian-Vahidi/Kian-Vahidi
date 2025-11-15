@@ -16,4 +16,4 @@
 ⋆ Shell Kommandos, IT Support, Netzwerkerfahrung
 
 ### ✔ Kontakt  
-⋆ Kian.Vahidi.mail@gmail.com
+⋆ ali.vahidi.mail@gmail.com
